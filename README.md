@@ -1,2 +1,2 @@
-# boostaro-benefits
-Boostaro™ ignites sexual vitality and overall wellness. Order your bottle for only $49 at 83% off—limited-time offer. Elevate your passion today!
+# fitspresso-benefits
+FitSpresso™ fuels your weight loss journey naturally. Get your $39 bottle at 83% off—visit our site for reviews, pricing, and exclusive offers!
